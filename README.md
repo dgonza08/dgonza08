@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @dgonza08
 - 👀 I’m interested in develop skills
 - 🌱 I’m currently learning coding
-- 💞️ I’m looking to collaborate on a small projects with nice people
+- 💞️ I’m looking to collaborate on a small projects with great people
 - 📫 How to reach me ... dgonza08@estudiantes.unileon.es
